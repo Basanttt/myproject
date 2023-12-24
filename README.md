@@ -1,1 +1,1 @@
-Training in process
+Training in progress
